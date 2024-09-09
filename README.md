@@ -8,3 +8,5 @@ Meu nome é Rafaela Kuhn
 
 ### Você entrar em contato comigo 📫
 kuhn.rafaela@escola.pr.gov.br
+
+![](https://media.tenor.com/pvFJwncehzIAAAAM/hello-there-private-from-penguins-of-madagascar.gif)
